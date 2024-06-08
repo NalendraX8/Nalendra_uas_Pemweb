@@ -1,25 +1,31 @@
-![SAMPUL MSN](https://user-images.githubusercontent.com/111676859/214242782-ba0ddd73-0545-4155-9ae1-0348d027ae8c.jpg)
+Bina Informatika Production
+Tentang Bina Informatika Production
+PT. Bina Informatika Production berdiri pada tanggal 24 Juni 2019, sebuah perseroan terbatas yang bergerak di bidang jasa suplier dan contractor. Kemudian, pada 22 Januari 2022, PT. Bina Informatika Production membuka cabang usaha baru di bidang teknologi yang meliputi pembuatan website, aplikasi mobile, branding, konten kreatif, digital marketing, dan advertising. Cabang ini dinamakan "Bina Informatika Production."
 
-# Mulia Sejati Nusantara Production 
+Layanan
+Jasa Pembuatan Website dan Aplikasi Android & iOS:
 
-# Tentang MSN PRODUCTION
+Sistem Informasi
+Sistem Administrasi
+Sistem Promosi
+Wedding
+Jasa Pemasaran Produk atau Jasa Melalui Saluran Periklanan Online:
 
-PT. MULIA SEJATI NUSANTARA Berdiri Pada Tanggal 24 Juni 2019 Sebuah Perseroan Terbatas yang bergerak di bidang jasa Suplier & Contractor.Kemudian pada 22 January 2022 PT. MULIA SEJATI NUSANTARA Membuka cabang usaha Baru di Bidang Teknologi yang meliputi Pembuatan Website, Apilkasi Mobile, Branding, Content Creative, Digital Marketing & Advertising. Cabang ini di namakan “Mulia Sejati Nusantara Production" atau di singkat MSN Production.
+Mesin Pencarian Google
+Jaringan Display Iklan Google
+YouTube
+Facebook
+Instagram
+TikTok
+Twitter
+Jasa Pembuatan Branding & Konten Kreatif.
 
-1. Jasa Pembuatan Website dan Aplikasi Android & iOS: Sistem Informasi, Sistem Administrasi, Sistem Promosi & Wedding.
-2. Jasa pemasaran produk atau jasa melalui saluran Periklanan Online: Mesin Pencarian Google, Jaringan Display Iklan Google, Youtube, Facebook, Instagram, Tiktok, Twitter
-3. Jasa pembuatan Branding & Konten Kreatif.
+Visi & Misi Bina Informatika Production
+Misi
+Menjadi perusahaan swasta yang handal dalam penyedia jasa dan perdagangan sesuai dengan KBLI yang dimiliki.
 
-# Visi & Misi MSN PRODUCTION
-
-*Misi
-
-Menjadi Perusahaan swasta yang handal dalam penyedia jasa dan perdagangan sesuai dengan KBLI yang dimiliki.
-
-*Layanan
-
+Layanan
 Dapatkan loyalitas konsumen, berikan mereka pengalaman yang berkesan dengan menciptakan hubungan yang saling menguntungkan.
 
-*Visi
-
-Dalam melaksanakan tugas - tugasnya Mulia Sejati Nusantara Production senantiasa menjaga, profesionalisme, kejujuran, kebersamaan, ketertiban, dan kesehatan kerja sehingga dihasilkan suatu karya yang berkualitas
+Visi
+Dalam melaksanakan tugas-tugasnya, Bina Informatika Production senantiasa menjaga profesionalisme, kejujuran, kebersamaan, ketertiban, dan kesehatan kerja sehingga dihasilkan suatu karya yang berkualitas.
